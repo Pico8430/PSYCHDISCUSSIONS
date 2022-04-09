@@ -1,8 +1,3 @@
-# WHY THIS FORK IS HERE
-Because of some changes at the catagories for discussions, take a look.
-
-
-
 # PSYCHDISCUSSIONS
 REAL!?!?!??!?!?!?!?!
 
@@ -22,3 +17,7 @@ link to psych if ur lazy : https://github.com/ShadowMario/FNF-PsychEngine
 
 
 
+
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
