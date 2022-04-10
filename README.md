@@ -14,3 +14,10 @@ ok here are the rules:
 
 
 link to psych if ur lazy : https://github.com/ShadowMario/FNF-PsychEngine
+
+
+
+
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
